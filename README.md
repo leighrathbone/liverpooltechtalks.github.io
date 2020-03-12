@@ -1,1 +1,1 @@
-Liverpool Tech Talks
+Liverpool Tech Talks Rocks
